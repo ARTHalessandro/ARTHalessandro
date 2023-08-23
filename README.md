@@ -7,9 +7,4 @@ Meu Nome é Arthur Alessandro
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
   ### Você entrar em contato
-
-   arthur.rodrigues.oliveira@escola.pr.gov.br
-  
-  @xarth_xx
-
 ![](https://media.tenor.com/w2okgCJANeoAAAAi/groovin-fortnite.gif)
